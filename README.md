@@ -1,2 +1,0 @@
-# Nayeon-Kim
-Zigbang Portfolio
